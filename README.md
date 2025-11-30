@@ -17,4 +17,10 @@ Things you should know before interact me .<img width="20" height="20" alt="imag
 
 <img width="230" height="52" alt="image" src="https://github.com/user-attachments/assets/78334a30-b714-46a2-92d0-2a5aa91ae80e" />
 <img width="230" height="60" alt="image" src="https://github.com/user-attachments/assets/4d629977-d7dc-451b-8fdc-9ba9593ff2cc" />
+Things about me! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/0ca83c1c-c9cc-4f5a-a380-7441af48fcbd" />
 
+1 . i love to use pick up lines because why not? <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/3f6a2c15-27c3-4278-9f0b-7f396dc6b1d8" />
+
+2 . i like to draw !! ( especialy i like to draw gigi & brusha from dandy's world. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ac8a5780-1497-4da3-8a13-7c104b5e7343" />
+
+3 . i want to marry fictional character .. ITS FUCKING REALLL !!!! RAAAAAAAAAHHHHHHHHH <img width="200" height="40" alt="image" src="https://github.com/user-attachments/assets/5dd0d748-51a2-4e6e-ac92-5dc6a350a680" />
