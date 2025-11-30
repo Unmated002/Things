@@ -1,8 +1,9 @@
 # Things about me & before interact w me
 <img width="1280" height="168" alt="image" src="https://github.com/user-attachments/assets/2d8a12bf-07ed-458c-a29b-d5b655ee33e4" />
-                                                   It's nath/natheilic
+                                                                      It's nath/natheilic
 
-Things you should know before interact me .<img width="51" height="28" alt="image" src="https://github.com/user-attachments/assets/ffad5b4d-9eaa-404b-947d-9a758c4390b0" />
+Things you should know before interact me .<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/1bd8f626-59e5-43f5-bfa2-faa18f8e638d" />
+
 
 1 . do not interact with me if my name has > Dni , Dniuf , Dniucf <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/dc4266c2-85fa-42c8-9213-bebf364a0004" />
 
