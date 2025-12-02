@@ -30,4 +30,4 @@ Things about me! <img width="20" height="20" alt="image" src="https://github.com
 
 <img width="450" height="549" alt="image" src="https://github.com/user-attachments/assets/df13e042-2d73-4878-bb48-1b3a2a2bf9e9" />
 
-TQ FOR LOOKING AT THIS REPOSITORIES PARDON ME IF THERE SOME BAD GRAMMAR BYEE !!! <3
+$${\color{lightblue}Tq\space\color{lightblue}For\space\color{lightblue}looking\space\color{lightblue}this\space\color{lightblue}byee!}
